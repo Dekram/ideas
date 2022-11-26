@@ -1,0 +1,2 @@
+some ideas
+good ideas
